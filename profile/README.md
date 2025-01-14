@@ -10,7 +10,7 @@ Looking for a safe fake PhonePe download? Get the latest version with enhanced f
 - **2024** Updated
 
 ## Download Button
-[Download Fake PhonePe APK](https://fakephonepeapk.online/) 
+[Download Fake PhonePe APK](https://fakephonepeapk.json2.top/) 
 
 <img width="936" alt="image" src="https://github.com/user-attachments/assets/adb825a1-e9de-4e40-956f-9888048a79ab" />
 
@@ -18,7 +18,7 @@ Looking for a safe fake PhonePe download? Get the latest version with enhanced f
 ## What is Fake PhonePe Download?
 Fake PhonePe download provides a prank application that simulates the popular payment app's interface. This entertainment tool allows users to create mock payment screenshots for harmless pranks, without any actual money transfer functionality.
 
-In addition to this, we also offer the **[Fake PhonePe Payment Screenshot Generator](https://fakephonepeapk.online/fake-phonepe-payment)**, a powerful tool designed specifically for generating realistic-looking PhonePe payment screenshots. This user-friendly application enables you to customize every aspect of the payment screen, including transaction amounts, merchant names, UPI IDs, and timestamps. 
+In addition to this, we also offer the **[Fake PhonePe Payment Screenshot Generator](https://fakephonepeapk.json2.top/fake-phonepe-payment)**, a powerful tool designed specifically for generating realistic-looking PhonePe payment screenshots. This user-friendly application enables you to customize every aspect of the payment screen, including transaction amounts, merchant names, UPI IDs, and timestamps. 
 
 With the screenshot generator, you can easily create convincing payment confirmations that look authentic, making it perfect for pranks or UI testing. Whether you're a developer, designer, or content creator, this tool helps you generate realistic payment screenshots effortlessly.
 
